@@ -1,1 +1,1 @@
-# squareria.github.io
+# squareriaentertainment.github.io
